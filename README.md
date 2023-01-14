@@ -1,0 +1,1 @@
+# Akilli_Guvenlik_Sistemi
